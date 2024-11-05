@@ -1,4 +1,4 @@
-## Hello, proceed with caution .
+## hi-yo! please proceed with caution since these images include death threats, etc . ++ images from my strawpage, from ex's friend . 
 
 ![alt tag](https://i.postimg.cc/C1cGg8hj/strawpage-picasso-JEb-Opt-Fvdlwhhiqaj-Ap-V-png.webp)
 ![alt tag](https://i.postimg.cc/Y9DWVwRR/strawpage-picasso-zu-Bzjc-Cf-Ljimql-FTm-Gyq-png.webp)
